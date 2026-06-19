@@ -13,5 +13,3 @@ https://www.dropbox.com/scl/fo/4y3gdele4foy15006z8ch/h/Witness%20Statements/Nich
 https://web.archive.org/web/20240519201158/https://bitcoindefense.org/wp-content/uploads/2024/03/Witness-Statement-of-Nicholas-Bohm.pdf
 
 Information wants to be free
-
-Send some sats if you want to say thank you: https://coinos.io/satoshilives
